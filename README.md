@@ -1,2 +1,2 @@
 # world-chat
-Have fins with friends all over the world
+Have funs with friends all over the world
